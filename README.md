@@ -1,13 +1,14 @@
 ## About Company
 
+🤖 [bndigital.co](bndigital.co)
+
 ✅ Top B2B Creative & Design Agency in the UK by Clutch.co  
 
 ✅ 5 Stars Rating.
 
 ✅ Over 170 highly satisfied customers.
 
-We provide top-notch experience design and development services for startups and smart companies. We focus on mobile user interaction, product user experiences, web platforms.
-Want to make your customers happy and satisfied? We'll cover you.
+**We help businesses to grow and succeed by unleashing the power of design and technology. We excel in the fintech, real estate, and healthcare industries.**
 
 A little bit about us 👩‍💻👨‍💻:
 
