@@ -12,7 +12,7 @@
 
 A little bit about us 👩‍💻👨‍💻:
 
-⚡️ 45 in-house design experts and software engineers with proven experience;
+⚡️ 70 in-house design experts and software engineers with proven experience;
 
 ⚡️ Rich expertise in fintech, wellness, and proptech verticals;
 
